@@ -1,0 +1,7 @@
+- [[Resonance Calendar]]
+- Author: [[Martin Gurri]]
+- Source:
+- Date:
+- Key Terms:
+- Notes: [[Literature Notes - The Revolt of the Public]]
+- Quotes

@@ -1,0 +1,23 @@
+- "How are legitimate elites selected in a democratic society?"
+- Trump as ideologically formless -- a blank state.
+- Institutions began to bleed authority as news became more diffused and widely available.
+- [[Matteo Renzi]], prime minister in 2014
+	- [[Mario Draghi]] is the current. Ex-president of the [[European Central Bank]].
+	- Berlusconi is the debaucherous one.
+- Putin as a mafia figure with not a whole lot of power
+	- GDP of Spain
+	- Falling birth rates -- peaked in 1990.
+	- Brain drain.
+- How do el-Sisi, [[Erdogan]] and [[Putin]] differ from [[Xi]]
+- Elite driven pessismism.
+	- Is that true?
+		- BLM
+- Focus on elites as pulling the strings.
+- Are there some institutions that have to be protected?
+- Once you become the president, you can't continue to negate everything or else the people will suffer and you'll lose popularity.
+- "To retain his base, he must provoke his opposition into a frenzy of loathing."
+- News media looking for a reason that the public lost trust in them: fake news.
+	- Don't think this is entirely false, but asserting that fake news has nothing to do with Trump's ascent is just wrong too.
+		- Maybe that's not what he's saying?
+- News realized they could just make more money doing this?
+	- It doesn't matter if people trust them or not.
